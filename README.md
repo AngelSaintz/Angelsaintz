@@ -1,7 +1,7 @@
-<p>Whats up im Spoke / Zam</p>
+<p>Call us Spoke , Zam , or Mapicc! (Mapicc preferred) :) </p>
 
-<p> He / She or Shi idc , sometimes it varies just ask </p>
+<p> Any prns or ask! </p>
 
-<p> Roblox Myths (Days Union) / MC skins usually , Not crazy active </p>
+<p> Roblox Myths (Days Union) / MC skins usually , Not usually active </p>
 
-<p> hi oomfs if u find this </p>
+<p> MY USERNAME ISNT INTENDED TO BE A SHIP, IF ZAM X SPOKE IS CALLED THAT PLEASE LET ME KNOW SO I CAN CHANGE IT !!! </p>
