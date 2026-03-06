@@ -9,3 +9,5 @@
 <p> Dni; proship , boundary breakers / uushipping & lsshipping , tdu supporters & alonetraveler supporters , adults with minors dni (we are a MINOR!!! and we dont want to break your dni aswell)</p>
 
 <p> if any art we use/anyone we interact with is problematic please let me know!!! i dont really do a dive into artists/people ty!</p>
+
+<p><a href="https://angelsaintz.atabook.org/?page=1">atabook for funsies</a></p>
