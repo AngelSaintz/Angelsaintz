@@ -1,13 +1,13 @@
-<p> Call me Spoke , Zam , or Mapicc! (Mapicc preferred) :) </p>
+<p> ❝ ʏᴏᴜ ᴋᴇᴇᴘ ᴏɴ ᴄʀʏɪɴ' ʙᴜᴛ ʏᴏᴜ ᴋɴᴏᴡ ᴡʜᴀᴛ ʏᴀ' ᴅɪᴅ ❞ </p>
 
-<p> Any prns or ask! we do use we/us mixed in with singular prns </p>
+<p> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚ </p>
 
-<p> intrests; Days union (not as into as before but feel free to int! we dont support the admins or anything) , mcyt , avh rblx series (admins vs hackers on yt!) , and more </p>
+<p> Mappic or Spoke , suspecting sys </p>
 
-<p> Tone tags preferred (helps us out ALOT) , please let us know if we come off as rude , we're rather socially anxious ; we're not super active either </p>
+<p> any prns , aro-spec & bi </p>
 
-<p> Dni; proship , boundary breakers / uushipping & lsshipping , tdu supporters & alonetraveler supporters , adults with minors dni (we are a MINOR!!! and we dont want to break your dni aswell)</p>
+<p> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚ </p>
 
-<p> if any art we use/anyone we interact with is problematic please let me know!!! i dont really do a dive into artists/people ty!</p>
+<p> ❝ ɪ'ʟʟ ɴᴇᴠᴇʀ ʟᴇᴛ ʏᴏᴜ ʙᴀᴄᴋ ɪɴ ❞ </p>
 
-<p><a href="https://angelsaintz.atabook.org/?page=1">atabook for funsies</a></p>
+
