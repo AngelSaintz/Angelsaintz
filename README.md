@@ -8,7 +8,7 @@
 
 <p> ┈┈┈┈┈┈┈┈ </p>
 
-<p> dni proship , boundary breakers , uushipping & lsshipping ( if the ccs are fine with shipping thats fine .) </p>
+<p> dni proship , boundary breakers , uushipping & lsshipping ( if the ccs are fine with shipping thats fine .) under 14 (unless i know you) </p>
 
 <p> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚ </p>
 
