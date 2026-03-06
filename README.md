@@ -9,6 +9,7 @@
 <p> ┈┈┈┈┈┈┈┈ </p>
 
 <p> dni proship , boundary breakers , uushipping & lsshipping ( if the ccs are fine with shipping, thats fine ) </p>
+<p> if i int with anyone on my dni please tell me cause i dont do a whole background check </3 </p>
 
 <center><p> ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚ </p></center>
 
